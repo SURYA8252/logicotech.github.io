@@ -1,1 +1,0 @@
-# logicotech.github.io
